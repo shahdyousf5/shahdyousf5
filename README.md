@@ -48,7 +48,7 @@
 ## 🌐 Connect with Me:
 - 📧 shahdyo2002@gmail.com
 - 📍 Saudi Arabia
-- [LinkedIn](https://www.linkedin.com/in/themagicalmammal)
+- [LinkedIn](https://www.linkedin.com/in/shahd-yousef-almatrouk-966849278?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
 - [GitHub](https://github.com/themagicalmammal)
 
 ---
